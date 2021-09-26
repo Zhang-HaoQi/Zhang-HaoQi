@@ -6,7 +6,6 @@
 - 🌱 Learning ：Spring
 - 👯 Target：Learn computers together
 - 🤔 Help ：Find small partners to learn with
-- 💬 Ask me ：I will give you a future.
 - 📫 Reach me: ：tel:19903848257
 - 😄 Introduce: I just I don't like fireworks 
 - ⚡ Fun fact: soccer,run,read,yards
